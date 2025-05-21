@@ -1,4 +1,4 @@
-# **Vendoo AI Promo Code: Exclusive Discounts & How to Save Big**  
+# **Vendoo AI Promo Code: 85%OFF Exclusive Discounts & How to Save Big**  
 
 Are you looking for the best **Vendoo AI promo code** to get exclusive discounts on your subscription? You’re in the right place! In this detailed guide, we’ll cover everything you need to know about Vendoo AI, its features, pricing, and how to use promo codes to save money.  
 
